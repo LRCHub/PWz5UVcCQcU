@@ -1,0 +1,37 @@
+# KEIJU – Nowhere
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+*
+行き止まりBut we ain't give a shit
+I'm just gonna miss ya 戻れない
+夢の中見た It was you and me
+またわがままとか また管巻いていても
+派手な生活よりも ただここに居たい
+Ain't go nowhere. Ain't go nowhere.
+毎日1人 吸い込む煙 あいつ今どこ?挨拶はNO NO
+映画みたいに 上手くはいかない
+現実はとうに 愛想もない
+行き場失うほどもう
+長い夜に眠る希望
+少しの金と欲望
+何度も傷つけた過去 oh yea
+いつまで この暮らし She want it more
+I know I know 昔に I made a promise with you
+まだ覚えている 後ろにいる 君が見える
+*Repeat
+Ain't go nowhere まだ平気
+君と朝までNaked あの日見た夢の続き
+誰にも邪魔はさせない
+このOn my mind 君の魔法で忘れてたい
+でも言えない 出口はない
+I just wanna chill with you ただEverynight
+時が過ぎても 君を思う今日
+何処にいてもそう 戻れない過去
+君がいなきゃLonely 冷めたままのCoffee
+夜に飛ぶ飛行機 消える海の方に
+夢にyou＆me また夜に染まる街
+24/7ただbe with you そばに居たいだけの夜
+*Repeat
+```
